@@ -1,1 +1,0 @@
-# guilhermeausto_rafaellagos_2b_portifolio-2025
